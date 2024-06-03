@@ -2,4 +2,4 @@
 
 # 동작영상
 
-https://youtu.be/ZOcvmMGOENo
+https://youtu.be/zSRObVfqriM
